@@ -5,12 +5,9 @@ Powiedział nauczyciel.
 - Tosiu czy masz może piwo?
 
 - Tosiu, możesz zostać chwilę? Muszę z tobą porozmawiać.
+- Tosia udawala przez chwile, ze jest glucha ale po chwili odpowiedziala, ze moze, ale niezbyt dlugo.
 
-Powiedział nauczyciel.
-- Niestety - odpowiedziała Tosia - nie ma opcji.
-Powiedział nauczyciel. Dziewczyna spakowała swój plecak i podreptała w kierunku nauczyciela. "Ciekawe o co mu chodzi" pomyślała.
+Tosia była bardzo podekscytowana. Czuła, że to wielkie wyróznienie móc zostać z panią sam na sam :) 
+Pani zapytala Tosie, czy dobrze dzisiaj spala, Tosia odpowiedziala, ze niezbyt.
+Wtedy pani zdenerwowala sie i wyrzucila Tosie z klasy.
 
-
-Powiedział nauczyciel.
-
-- ale co z tym gitem
